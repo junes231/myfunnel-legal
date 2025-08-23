@@ -1,6 +1,6 @@
 # Terms of Service for my Funnel
 
-**Last updated: August XX, 2025**
+**Last updated: August 23, 2025**
 
 These Terms of Service apply to **my Funnel** (“the Software”).  
 By purchasing or using the Software, you agree to these Terms.
