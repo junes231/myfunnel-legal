@@ -1,6 +1,6 @@
 # Privacy Policy for my Funnel
 
-**Last updated: August XX, 2025**
+**Last updated: August 23, 2025**
 
 This Privacy Policy applies to **my Funnel** (“the Software”).  
 We respect and protect the privacy of all users.
