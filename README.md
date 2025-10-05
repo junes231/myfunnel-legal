@@ -16,5 +16,5 @@ All users, whether evaluating, purchasing, or using **my Funnel**, should review
 
 - This repository is **public**, allowing prospective users to review the legal documents before purchase or usage.
 - For questions regarding these documents, contact:
-  - muskjuons@gmail.com
+  - mingc3022@gmail.com
   - affiliate@hersupps.com
