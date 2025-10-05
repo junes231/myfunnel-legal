@@ -28,5 +28,5 @@ By purchasing or using the Software, you agree to these Terms.
 
 ## Contact
 For legal or technical inquiries, please contact:
-- muskjuons@gmail.com
+- mingc3022@gmail.com
 - affiliate@hersupps.com
