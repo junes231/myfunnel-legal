@@ -23,7 +23,7 @@ We respect and protect the privacy of all users.
 ## User Rights
 - You have the right to request the export or deletion of your data.
 - To exercise your rights, please contact us via:
-  - muskjuons@gmail.com
+  - mingc3022@gmail.com
   - affiliate@hersupps.com
 
 ## Changes to Policy
